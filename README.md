@@ -1,4 +1,4 @@
-ccccxcdfsddf cbcvc,km;dfdvsddscdsdcddsdxfbbgfggf# VeraDemo - Blab-a-Gag
+scdsdcddsdxfbbgfggf# VeraDemo - Blab-a-Gag
 
 ### :information_source: Notice
 
